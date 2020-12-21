@@ -1,4 +1,4 @@
-# dateset exercises you can upload  from this link :
+# dateset exercises you can download  from this link :
 https://drive.google.com/file/d/1IeSRjOMCb5EV0gcijp0LrCOLG0DM6eyi/view?usp=sharing
 
 
